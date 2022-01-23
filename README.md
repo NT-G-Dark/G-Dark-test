@@ -1,1 +1,7 @@
-# G-Dark-test
+# G-Dark
+FB: facebook.com/nhat.tuong.432
+ZALO:0941172798
+# DONATE
+MBBANK : 438888806
+MOMO : 0941172798
+TSR : 0941172798
